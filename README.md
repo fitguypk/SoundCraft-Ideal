@@ -1,1 +1,0 @@
-# SoundCraft-Ideal
